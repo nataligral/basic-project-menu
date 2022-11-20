@@ -1,0 +1,1 @@
+my respip freeze > requirements.txtturant with vav bar and flask
